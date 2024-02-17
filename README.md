@@ -1,0 +1,1 @@
+# C-Users-Hearthz-Gaming-Documents-Decodificador-de-texto
